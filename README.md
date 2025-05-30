@@ -5,7 +5,7 @@ TalkingPhotos AI Coupon Code 2025 – Unlock up to 60% OFF with this exclusive l
 ### [Use This Link To Get 55% OFF ](https://paykstrt.com/52357/163249).
 
 
-[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://paykstrt.com/52357/163249)
+[![Discount button](https://github.com/user-attachments/assets/d55c2865-942f-4da9-9115-9452d9bb6de0)](https://paykstrt.com/52357/163249)
 
 ---
 
